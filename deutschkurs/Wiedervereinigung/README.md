@@ -13,3 +13,5 @@ In **diesem Jahr** war das Fest in Schwerin, der Hauptstadt von Mecklenburg-Vorp
 Aber auch andere deutsche Städte feiern diesen Feiertag. Sie organisieren Konzerte und zünden Feuerwerke.
 
 ![](https://github.com/lzk228/lzk228/blob/master/deutschkurs/Wiedervereinigung/fest.jpeg?raw=true)
+
+![](https://github.com/lzk228/lzk228/blob/master/deutschkurs/Wiedervereinigung/analyse.png?raw=true)
