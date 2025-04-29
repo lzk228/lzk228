@@ -1,3 +1,5 @@
-19 yo male
+stupid in his 20s
 
-contribute to space station 14
+langs: uk/ru/en/de
+
+contributor of space station 14
